@@ -1,2 +1,0 @@
-# Pharmaceutical-Analysis
-# Pharmaceutical-Analysis
